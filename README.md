@@ -1,3 +1,5 @@
+![close-up-anthropomorphic-robot-singing](https://github.com/SumairAziz/SumairAziz/assets/140709914/5282d17f-6afa-46ac-8e77-d81ac92fe56f)
+
 - 👋 Hi, I’m @SumairAziz
 - 👀 Interested in web development
 - 🌱 Currently learning front-end web development
