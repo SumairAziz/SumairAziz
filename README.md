@@ -1,4 +1,5 @@
-![close-up-anthropomorphic-robot-singing](https://github.com/SumairAziz/SumairAziz/assets/140709914/5282d17f-6afa-46ac-8e77-d81ac92fe56f)
+![close-up-anthropomorphic-robot-singing7](https://github.com/SumairAziz/SumairAziz/assets/140709914/717fb5ed-ce44-44bb-8308-e88d74a2f6b7)
+
 
 - 👋 Hi, I’m @SumairAziz
 - 👀 Interested in web development
